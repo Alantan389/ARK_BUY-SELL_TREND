@@ -1,0 +1,1 @@
+# ARK_BUY-SELL_TREND
